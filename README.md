@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Raj
+# 👋 Hi, I'm Rajendra Goud
 
 🚀 Procurement Professional | Building Data-Driven Operations
 
